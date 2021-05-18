@@ -1,1 +1,1 @@
-# Sparks-Foundation
+# The Sparks Foundation
